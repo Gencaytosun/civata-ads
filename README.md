@@ -1,1 +1,1 @@
-# civata-ads
+google.com, pub-2833042233432273, DIRECT, f08c47fec0942fa0
